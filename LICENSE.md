@@ -1,4 +1,4 @@
-# 
+# Enhance CapCut for macOS with secure CapCut for macOS Module | HDR-editing + version-history, the #1 module. Includes HDR-editing and version-history for a smoother and more
 
 
 
